@@ -15,7 +15,7 @@ https://www.iciba.com/word?w=choose
 https://translate.google.com/?sl=en&tl=zh-CN&text=choose%0A&op=translate
 
 
-## 口语对话练习
+## 美式英语口语对话练习
 
 https://www.youtube.com/watch?v=fp-7bhHyTPI
 
